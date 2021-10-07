@@ -1,4 +1,4 @@
-![none](https://github.com/SidorovMiha/Fun_Bot/blob/main/Images/c96qoCVLj-Q.jpg)
+![none](https://github.com/SidorovMiha/Fun_Bot/blob/main/Images/title.jpg)
 # Команда Parody of iskin
 ## Состав команды
 | Роль | Специалист |
